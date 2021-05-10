@@ -1,1 +1,1 @@
-https://omazsleer.github.io/cv
+https://omazsleer.github.io/rsschool-cv/cv
